@@ -21,3 +21,8 @@ So i will entertain you a lots.
 " target="_blank"><img src="http://img.youtube.com/vi/KRV9RcWvjC4/0.jpg" 
 alt="IMAGE ALT TEXT HERE" width="240" height="180" border="10" /></a>
 #### new record T0P kill full msti pubg lite
+
+<a href="http://www.youtube.com/watch?feature=player_embedded&v=NtQ5OZ5fPe4
+" target="_blank"><img src="http://img.youtube.com/vi/NtQ5OZ5fPe4/0.jpg" 
+alt="IMAGE ALT TEXT HERE" width="240" height="180" border="10" /></a>
+#### ToP 10 kill in pubg mobile lite
