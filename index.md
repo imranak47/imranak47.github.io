@@ -2,7 +2,7 @@
 
 Hii guys this is **imran Ali** . I have a [youtube](https://m.youtube.com/channel/UCcrAkiJk8kQkAxSfdF6KYHg ) channel "**PUBG ke diwane**"
 This is new channel which has only 20 subscribers approx.
-i am uploading very intresting videos of pubg lite.
+i am uploading very interesting videos of pubg lite.
 
 
 I tells lots of amazing tips & and tricks in my gaming videos.
